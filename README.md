@@ -5,6 +5,7 @@
 英语等级：CET-4   
 手机号码：18758093443   
 邮箱：heyifeng_kf@163.com   
+github：https://github.com/hyf93924   
 ## 求职意向   
 工作类型：全职   
 希望行业：互联网/电子商务   
